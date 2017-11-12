@@ -1,2 +1,3 @@
-# nerdhelppls
-Left over "need to buy"-things for my new build
+#nerdneedhelpfromanerd
+
+Sista delarna till bygge 2017 Q4
